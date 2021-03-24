@@ -1,2 +1,2 @@
-# Practice
-This is just practice
+# Zodiac Signs - Lola W. 
+
